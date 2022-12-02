@@ -69,7 +69,7 @@
 ![Фото в бортжурнале Ford Focus I Sedan](https://a.d-cd.net/Lq8z3TFbItJmuaLMQqG8dUVTMkI-960.jpg)Понять и простить*Не знаю, как на Д2 теги писать*  
 YS4E, Split Port, 2.0 SPI, Капиталка
 
- #Комментарии
+ **Комментарии**
 
 
 
